@@ -1,0 +1,4 @@
+machu-picchu
+============
+
+mMachu Picchu was built around 1450, at the height of the Inca Empire.[6] The construction of Machu Picchu appears to date from the period of the two great Incas, Pachacutec Inca Yupanqui (1438–71) and Tupac Inca Yupanqui (1472–93).[7] It was abandoned just over 100 years later, in 1572, as a belated result of the Spanish Conquest.[6][8] It is possible that most of its inhabitants died from smallpox introduced by travelers before the Spanish conquistadors arrived in the area.[9] The latter had notes of a place called Piccho, although there is no record of the Spanish having visited the remote city. The types of sacred rocks defaced by the conquistadors in other locations are untouched at Machu Picchu
